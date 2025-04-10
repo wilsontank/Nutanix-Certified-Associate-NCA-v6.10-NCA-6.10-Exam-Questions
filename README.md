@@ -1,0 +1,1 @@
+# Nutanix-Certified-Associate-NCA-v6.10-NCA-6.10-Exam-Questions
